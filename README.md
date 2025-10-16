@@ -1,0 +1,1 @@
+# Gerenciador-Financeiro-Gusm-o
